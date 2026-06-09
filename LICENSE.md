@@ -1,4 +1,4 @@
-# 
+# Seguro Fences extensões para Mac OS | Nativo Fences extensões para PC Windows. Com impulso de desempenho e organizacao de area de trabalho — otimizado para máximo desempenho em cada plataforma.
 
 
 
